@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @N2K-05
 - 👀 I’m interested in programming, studying A.I and am also a Physics and Math Enthusiast
-- 🌱 I’m currently on my High School
+- 🌱 I’m currently doing my Undergraduate
 - 💞️ I’m looking to collaborate with Google
 - 📫 You can DM me on my Discord: TheRealVader#2658
 
